@@ -1,2 +1,2 @@
 # MyFinances
- ya huesoss asdasdasdasda
+kak dela
